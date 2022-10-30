@@ -1,2 +1,2 @@
-Hi im paricbat (Pronounce as [parisbat])! \
+Hi im paricbat (Pronounced as [parisbat] :) )! \
 Big programmer yay
